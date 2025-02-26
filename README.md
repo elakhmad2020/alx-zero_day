@@ -1,1 +1,1 @@
-I am a software Engineer 
+Navigating Tech
